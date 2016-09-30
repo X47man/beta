@@ -1,2 +1,2 @@
 # beta
-BetaStarJake
+Don't copy this website.
